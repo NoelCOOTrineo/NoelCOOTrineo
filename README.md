@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
+🔭 I’m currently working on Local Ai setups<br>👯 I collaborate with Trineo Developer team<br>🤝 I’m looking for help with<br>🌱 I’m currently learning Cybersecurity <br>💬 Ask me about my mental health <br>
 
 
 ## 🌐 Socials:
